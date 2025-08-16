@@ -1,4 +1,4 @@
-Below is a collection of my work from student clubs.
+Below is a collection of my investment-related work since the start of university.
 
 [Fall 2023 - TTWO](https://github.com/bayewq/Work-Portfolio/blob/main/TTWO%20Pitch%20(Fall%202023).pdf)
 
